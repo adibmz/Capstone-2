@@ -34,9 +34,9 @@ Capstone-2/
 ## Contact
 
 - **Email:** mzadib5@gmail.com
-- **Telephone:** +212681051208
 - **Location:** Nador, MA
 
 ---
+
 
 © 2025 Adib
